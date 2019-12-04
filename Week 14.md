@@ -16,5 +16,5 @@ He defines "Creativity is the generation of new ideas or the perception of new o
 
 Cox touches upon the importance of creativity and innovation in business and how they can be a source of strenghth to successfully 
 face the economic challenge.
-Adn therefore, this links to how 'design thinking' can impact the economy.
+And therefore, this links to how 'design thinking' can impact the economy.
 
