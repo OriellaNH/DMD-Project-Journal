@@ -1,3 +1,6 @@
+Design Thinking
+
+
 •	Provide a concise summary of what Herbert Simon says about Design Thinking.
 
 Design Thinking is linked to improving the future via a creative process. There's no judgement in design thinking, as that 
