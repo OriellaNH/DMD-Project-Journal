@@ -1,3 +1,6 @@
+Introduction
+
+
 •	How do you see creativity?
 
 I see creativity as a combination of imagination and practicality. Creativity to me is something sparked together from 
